@@ -19,11 +19,6 @@ https://youyun999.net/auth/register
 (不可以白嫖)
 
 
-V2ray机场
-
-https://youyun999.net/auth/register
-
-(不可以白嫖)
 
 
 ________________________________________________________
